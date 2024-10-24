@@ -1,4 +1,4 @@
-you made the pretty little things and now you're gone
+the world is full of fishes but i trust you
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
