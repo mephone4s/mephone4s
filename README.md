@@ -1,4 +1,4 @@
-white girl party!!!
+i like making acquaintances :-D
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
