@@ -1,8 +1,4 @@
-HEAR IT CALL, HEAR IT CALL, HEAR IT CALL TO ME CONSTANTLY .   
-AND HEAR THE HARMONY ONLY WHEN ITS HARMING ME       
-ITS NOT REAL, ITS NOT REAL, ITS NOT REAL ENOUGH       
-BUT I WILL BE THE ONE YOU NEED, THE WAY I CANT BE WITHOUT YOU.       
-I WILL BE THE ONE YOU NEED, I JUST CANT BE WITHOUT YOU .
+koury sisters ❤️
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
