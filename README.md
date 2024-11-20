@@ -1,6 +1,5 @@
 your unemployed friend on a friday be like "come to the castle" girl im at the fields!!! ❤️
 
-  <img  src="https://media1.tenor.com/m/n9SMoSQF2G0AAAAd/sinjin-drowning-kalynn-koury.gif">
 
 
 <!--
