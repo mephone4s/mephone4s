@@ -1,5 +1,6 @@
 ![image](https://github.com/user-attachments/assets/0b6ef0fc-2f61-4ce3-92f5-77cc89d66c1a)
 
+if any of you who see II act 3 early spoil the episode i might just kill myself
 
 
 
