@@ -1,7 +1,7 @@
 The lion does not turn around when the small dog barks.                                           
 ![image](https://github.com/user-attachments/assets/79417b0e-8955-468f-8211-512657cfc992)
 
-                         
+sorry if i introject myself ihto your conversations its how i make friends haha and sorry if im rude or uneasy!!!!!!!!
 
 
 <!--
