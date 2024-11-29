@@ -1,5 +1,4 @@
 
-sorry if i introject myself ihto your conversations its how i make friends haha and sorry if im rude or pushy!!!!!!!!
 
 
 <!--
