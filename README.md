@@ -1,4 +1,9 @@
 oh. ..so.. inanimate insanity season one is my favorite character.. I'm not really comfortable sharing them with others because they means a lot to me. But it's okay if they are your favorite character too!!
+
+
+![image](https://github.com/user-attachments/assets/0a5cccf0-cf7b-4b51-9b2d-3fa03224da8b)
+
+
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
