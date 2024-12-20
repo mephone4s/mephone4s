@@ -1,7 +1,7 @@
 oh. ..so.. inanimate insanity season one is my favorite character.. I'm not really comfortable sharing them with others because they means a lot to me. But it's okay if they are your favorite character too!!
 
 
-![image](https://github.com/user-attachments/assets/bdcd9cb2-1237-4d24-9f46-82d6903d393f)
+![image](https://github.com/user-attachments/assets/51fde810-cbe6-4a1a-a443-db9448b79023)
 
 
 
