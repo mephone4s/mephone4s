@@ -3,7 +3,8 @@ oh. ..so.. inanimate insanity season one is my favorite character.. I'm not real
 
 ![](https://magma.com/shared/VzHqGwu_FdBnaj4QV2-APD)
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31h4nzzq635zbhpr5dwzsjvczsny&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)                                                  
+☝ what im listening to because you should care
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
