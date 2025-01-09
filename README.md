@@ -1,7 +1,5 @@
-if the body and the life were two things that we could divide,
-i'd deliver up my shell to be filled with somebody else
-
-
+if i had the offer to do it again,
+make me invincible, invisible, or brain-dead.
 
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
