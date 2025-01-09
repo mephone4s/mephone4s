@@ -1,6 +1,6 @@
-oh. ..so.. inanimate insanity season one is my favorite character.. I'm not really comfortable sharing them with others because they means a lot to me. But it's okay if they are your favorite character too!!
+if the body and the life were two things that we could divide,
+i'd deliver up my shell to be filled with somebody else
 
-INANIMATE INSANITY IS A WOKE TRANSGENDER UNIVERSE
 
 
 <!--
