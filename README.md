@@ -1,5 +1,4 @@
-if i had the offer to do it again,
-make me invincible, invisible, or brain-dead.
+INANIMATE INSANITY IS A WOKE TRANSGENDER UNIVERSE!!!!!!!!!
 
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
