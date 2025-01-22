@@ -2,12 +2,13 @@
 
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/a8de04a0-0c96-401a-b78f-9be6e679a362)
+![image](https://github.com/user-attachments/assets/980bba61-abb0-4f6b-b9cc-b03854ec2f7e)
 
 
 
 
-drowns teamchaotix and silvonic but in a loving way!!!              
+
+drowns nirra and kelsey but in a loving way!!!              
 mephone4 do NOT interact :////
 
 ![image](https://github.com/user-attachments/assets/219f8d53-bd0a-4770-b23e-eca86db80e0b) ![image](https://github.com/user-attachments/assets/ff334246-ab68-458a-8a3a-e52d55a452ed)
