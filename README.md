@@ -1,12 +1,4 @@
-</div>
-
-<div align="center">
-
-![image](https://github.com/user-attachments/assets/980bba61-abb0-4f6b-b9cc-b03854ec2f7e)
-
-
-
-
+don't care + having fun + playing
 
 drowns nirra and kelsey but in a loving way!!!              
 mephone4 do NOT interact :////
