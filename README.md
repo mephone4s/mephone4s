@@ -3,7 +3,7 @@ don't care + having fun + playing
 drowns nirra and kelsey but in a loving way!!!              
 mephone4 do NOT interact :////
 
-![image](https://github.com/user-attachments/assets/219f8d53-bd0a-4770-b23e-eca86db80e0b) ![image](https://github.com/user-attachments/assets/ff334246-ab68-458a-8a3a-e52d55a452ed)
+![me irl unfortunately](https://github.com/user-attachments/assets/ff334246-ab68-458a-8a3a-e52d55a452ed)
 
 
 
