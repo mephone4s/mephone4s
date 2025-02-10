@@ -1,11 +1,13 @@
-![image](https://github.com/user-attachments/assets/2992dd59-891e-4655-9b3f-683d7795cbe2)
+![image](https://github.com/user-attachments/assets/17d54bcc-6ed1-4549-93af-0bfebf4556bf)
+
 
 don't care + having fun + playing
 
 drowns nirra and kelsey but in a loving way!!!              
 mephone4 do NOT interact :////         
 
-![me irl unfortunately](https://github.com/user-attachments/assets/ff334246-ab68-458a-8a3a-e52d55a452ed)
+![me and myself](https://github.com/user-attachments/assets/14e9dd8d-5519-4c6c-9170-457dd58bca08)
+
 
 
 
