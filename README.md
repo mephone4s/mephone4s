@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/4e7c101f-29ca-4b20-b5f5-27cd58b4eeef)
+![image](https://media1.tenor.com/m/bzx-YqE25uEAAAAC/ok-ko.gif)
 
 
 
