@@ -1,6 +1,7 @@
 
 ![image](https://media1.tenor.com/m/bzx-YqE25uEAAAAC/ok-ko.gif)
 
+Aww just ask for help next time!! If one of us is feeling bad, it brings the whole store down... literally!!!
 
 
 
