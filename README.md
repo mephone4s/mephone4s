@@ -1,4 +1,4 @@
-aww.. just ask for help next time!! if one of us is feeling bad it brings the whole store down... literally!!!
+aww.. just ask for help next time!! if one of us is feeling bad it brings the whole store down.. literally!!!
 
 ![image](https://media1.tenor.com/m/bzx-YqE25uEAAAAC/ok-ko.gif)
 
