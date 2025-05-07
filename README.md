@@ -1,4 +1,4 @@
-<img src="https://media1.tenor.com/m/bzx-YqE25uEAAAAC/ok-ko.gif" alt="drawing" width="100"/>
+<img src="https://pbs.twimg.com/media/GqD_1OqWkAAz_Xz?format=jpg&name=medium" alt="drawing" width="400" height="300"/>
 
 
 
