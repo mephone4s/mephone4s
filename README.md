@@ -1,6 +1,4 @@
-![](https://media1.tenor.com/m/iZeBKj_gjCQAAAAC/england-america.gif)
-
-
+![](https://media1.tenor.com/m/yu-GLrqyqsMAAAAC/england-america.gif)
 
 
 
