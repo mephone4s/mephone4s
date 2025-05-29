@@ -2,10 +2,6 @@
 
 
 
-i blocked a few accounts (mostly spam followers) ,, if you were a friend of mine that i blocked dont be afraid to reach out!!!! you can inform me on my strawpage and i will unblock you huahaha.. :-J
-
-
-
 
 
 
