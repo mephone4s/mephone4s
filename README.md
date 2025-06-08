@@ -1,4 +1,4 @@
- even a bird that cannot fly, just for today spreads its wings and lets them flutter!!  
+ even a bird that cannot fly, just for today, spreads its wings and lets them flutter!!  
 like a canary that has forgotten its song, lets forget even the unpleasent things!!!   
 
 ![image](https://github.com/user-attachments/assets/cbc967cc-cd4b-4242-b9c4-8f73df61d7f0)
