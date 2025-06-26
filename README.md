@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/cbc967cc-cd4b-4242-b9c4-8f73df61d7f0)
+![image](https://github.com/user-attachments/assets/79fb8441-5804-4a3a-9dd0-40a7f3e5cb4d)
+
 
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
