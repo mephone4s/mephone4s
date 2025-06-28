@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/79fb8441-5804-4a3a-9dd0-40a7f3e5cb4d)
+![image](https://media1.tenor.com/m/UEAH7XDj9FQAAAAd/brandonworks-brandon-works.gif)
 
 <sub> im like 99% sure rentry is hacked right now incase you are unaware, it's being a little sketchy<sub/>
 <!--
