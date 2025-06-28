@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/79fb8441-5804-4a3a-9dd0-40a7f3e5cb4d)
 
-<sub> im like 99% sure rentry is hacked right now incase you are unaware<sub/>
+<sub> im like 99% sure rentry is hacked right now incase you are unaware it's being sketchy<sub/>
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
