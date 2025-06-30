@@ -1,6 +1,10 @@
 ![image](https://media1.tenor.com/m/UEAH7XDj9FQAAAAd/brandonworks-brandon-works.gif)
 
-<sub> im like 99% sure rentry is hacked right now incase you are unaware, it's being a little sketchy<sub/>
+<sub> im like 99% sure rentry is hacked right now incase you are unaware, it's being very sketchy.....   
+i'd recommend not opening **any** rentry links, you might end up downloading a virus soo stay safe    
+also, if you have one, take your rentry off your profile to avoid giving someone else a virus 😺<sub/>
+
+
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
