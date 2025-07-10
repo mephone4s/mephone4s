@@ -2,8 +2,6 @@
 
 stop using rentry until the ad problem is fixed guys
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31h4nzzq635zbhpr5dwzsjvczsny&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
