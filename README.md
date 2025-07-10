@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/3df7a68f-30cd-41f3-891c-5e0d5bab21ad)
 
-
+stop using rentry until the ad problem is fixed guys
 
 
 
