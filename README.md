@@ -2,6 +2,11 @@
 
 stop using rentry until the ad problem is fixed guys
 
+<img width="205" height="155" alt="image" src="https://github.com/user-attachments/assets/073cfe6c-f6da-4a80-8e5f-41d37a6a7137" />
+
+mini me ⬆⬆⬆
+
+
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
