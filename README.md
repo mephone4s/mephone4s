@@ -2,7 +2,7 @@
 
 stop using rentry until the ad problem is fixed guys
 
-hi all my ponyfriends :--)
+hi my ponyfriends
 
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
