@@ -1,6 +1,3 @@
-<img width="527" height="429" alt="image" src="https://github.com/user-attachments/assets/0d908c27-3b8a-43cd-81ea-11605cdb9d35" />
-
-
 hi my ponyfriends :-)
 
 <!--
