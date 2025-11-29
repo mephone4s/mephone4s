@@ -1,6 +1,6 @@
 hi my ponyfriends U^ェ^U
 
-![](https://media1.tenor.com/m/z0lPNDqvYQIAAAAC/espresso-cookie-madeleine-cookie.gif)
+<img width="530" height="421" alt="image" src="https://github.com/user-attachments/assets/677719e6-0398-4fec-b3f4-f6b263fd5bea" />
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
