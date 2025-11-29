@@ -1,6 +1,7 @@
 hi my ponyfriends U^ェ^U
 
-<img width="530" height="421" alt="image" src="https://github.com/user-attachments/assets/677719e6-0398-4fec-b3f4-f6b263fd5bea" />
+<img width="285" height="285" alt="image" src="https://github.com/user-attachments/assets/fa8920c7-cef3-493e-9f89-9ec1bfcc0a3e" />
+
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
