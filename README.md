@@ -1,7 +1,6 @@
 hi my ponyfriends U^ェ^U
 
-<img width="285" height="285" alt="image" src="https://github.com/user-attachments/assets/fa8920c7-cef3-493e-9f89-9ec1bfcc0a3e" />
-
+![](https://media1.tenor.com/m/vbykaPDaG1QAAAAd/espresseleine-esmad-labubu.gif)   
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
