@@ -1,6 +1,6 @@
 hi my ponyfriends U^ェ^U
 
-![](https://media1.tenor.com/m/vbykaPDaG1QAAAAd/espresseleine-esmad-labubu.gif)   
+![](https://media.discordapp.net/attachments/1243471229676027915/1452855084932268113/image.png?ex=694b543c&is=694a02bc&hm=da39b227040bd0fa94f41cc859708669a6012c705498679f7ee41011686cd816&=&format=webp&quality=lossless)  
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
