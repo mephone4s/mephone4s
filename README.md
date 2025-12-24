@@ -1,8 +1,10 @@
 hi my ponyfriends U^ェ^U
 
-![](https://media1.tenor.com/m/vbykaPDaG1QAAAAC/espresseleine-esmad-labubu.gif)  
+biggest frostrock fictionkin ever actually
 
-biggest frostrock cookie fictionkin ever actually
+‎ ‎ 
+
+![](https://static.wikia.nocookie.net/cookie-run-tower-of-adventures/images/5/5d/Frostrock_Cookie_Star5.png/revision/latest?cb=20250205200106)
 
 <!--
 **MEPHONE4S/MEPHONE4S** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
